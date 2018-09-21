@@ -1,1 +1,1 @@
-study less learnmore
+study less learn more
